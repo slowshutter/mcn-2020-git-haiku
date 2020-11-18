@@ -1,4 +1,4 @@
-Lady butterfly    
-watching us pass, met death    
-Of warriors’ dreams.    
+Will we meet again    
+Heron's cry    
+A water-jewel    
 
