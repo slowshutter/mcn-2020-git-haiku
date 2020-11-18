@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Line that won't be deleted    
-It’s the Doll’s Festival.    
+An old pond    
+scatters in the night; Now see    
+Tall grass their monument    
 
