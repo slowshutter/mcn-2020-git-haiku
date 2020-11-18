@@ -1,4 +1,4 @@
-Spring is passing.    
-even the crickets' singing    
-A cicada’s voice.    
+A owner of the old thatched hut    
+thoughts come - and there is loneliness;    
+And evening bell    
 
