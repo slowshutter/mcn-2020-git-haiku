@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-and bring to men a chance to rest    
-Mogami River.    
+Temple bells die out.    
+Is also changed to another    
+and gazes at the moon.    
 
