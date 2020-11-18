@@ -1,4 +1,4 @@
-Here, where a thousand    
-who spends his little breakfast    
-Of faded daffodils    
+Carven gods long gone    
+in dusky night    
+This autumn evening.    
 
