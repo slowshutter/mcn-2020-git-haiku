@@ -1,4 +1,4 @@
-In the sea-surf edge    
-thoughts come - and there is loneliness;    
-Silent clouds of stars    
+Too curious flower    
+stretching over Sado Island    
+With tears.    
 
