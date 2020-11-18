@@ -1,4 +1,4 @@
-The rains of summer join together.    
-is quieted with creepers    
-Stabs the darkness    
+Seek on high bare trails    
+oh voices of the wild ducks    
+The autumn dusk is here.    
 
