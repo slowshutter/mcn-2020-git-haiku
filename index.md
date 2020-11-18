@@ -1,4 +1,4 @@
-Oh, tranquility!    
-scatters in the night; Now see    
-Basho lines the moon    
+An old pond    
+here at your flowering grave    
+Or backyard love?    
 
