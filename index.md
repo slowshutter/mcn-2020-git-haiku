@@ -1,4 +1,4 @@
-Seek on high bare trails    
-oh voices of the wild ducks    
-The autumn dusk is here.    
+Now in sad autumn    
+mingling with bright small shells    
+They meet, they mate    
 
