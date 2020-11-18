@@ -1,4 +1,4 @@
-An old pond    
-scatters in the night; Now see    
-Tall grass their monument    
+Cold first winter rain    
+and bring to men a chance to rest    
+Or backyard love?    
 
