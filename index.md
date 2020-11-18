@@ -1,4 +1,4 @@
-Here, where a thousand    
-All that remains    
-Bearded, with bent canes    
+White cloud of mist    
+loneliness? Just one leaf    
+A perfect evening!    
 
