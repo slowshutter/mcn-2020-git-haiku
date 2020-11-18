@@ -1,4 +1,4 @@
-In the cicada's cry    
-loneliness? Just one leaf    
-from looking at the moon.    
+Must springtime fade?    
+How swift it is    
+Lilies on the rocks    
 
