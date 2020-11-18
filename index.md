@@ -1,4 +1,4 @@
-The summer grasses.    
-The birds cry, and the fishes’ eyes are     
-Like our tendrilled life    
+When you say something,    
+spare my little buzzing friends    
+It’s the Doll’s Festival.    
 
