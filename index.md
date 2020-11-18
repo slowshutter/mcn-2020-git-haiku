@@ -1,4 +1,4 @@
-Seek on high bare trails    
-therefore our thanks dark clouds    
-It’s the Doll’s Festival.    
+Oh, tranquility!    
+scatters in the night; Now see    
+Basho lines the moon    
 
