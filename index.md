@@ -1,4 +1,4 @@
-Spring is passing.    
-The birds cry, and the fishes’ eyes are     
+This is the new line    
+it needs but shiny wings and look    
 This autumn evening.    
 
