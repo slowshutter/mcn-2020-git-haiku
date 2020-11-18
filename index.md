@@ -1,4 +1,4 @@
-Must springtime fade?    
-How swift it is    
-Lilies on the rocks    
+Under cherry-trees    
+thoughts come - and there is loneliness;    
+the autumn dusk is here.    
 
