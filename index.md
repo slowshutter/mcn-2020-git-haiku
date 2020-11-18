@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-dead leaves alone foregather    
-Murmuring Mogami    
+An old pond    
+who spends his little breakfast    
+Of warriors’ dreams.    
 
