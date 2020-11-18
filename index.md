@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-thoughts come - and there is loneliness;    
-And evening bell    
+Spring is passing.    
+these brilliant-hued hibiscus    
+cherry-blossoms . . .    
 
