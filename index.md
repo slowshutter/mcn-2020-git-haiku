@@ -1,4 +1,4 @@
-If there were fragrance    
-oh voices of the wild ducks    
-Waterfall music    
+Spring is passing.    
+The birds cry, and the fishes’ eyes are     
+This autumn evening.    
 
