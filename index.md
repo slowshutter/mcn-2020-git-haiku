@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Here along this way but I,    
-are darkened . . .    
+A owner of the old thatched hut    
+Heron's cry    
+cherry-blossoms . . .    
 
