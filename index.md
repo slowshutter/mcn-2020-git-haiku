@@ -1,4 +1,4 @@
-Oh, tranquility!    
-just enough to bend the leaves    
-Ueno? Asakura?    
+Black cloudbank broken    
+Penetrating the very rock,    
+These dark hands of life    
 
