@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-The fragrant blossoms remain.    
-Mogami River.    
+The first day of the year:    
+How swift it is    
+from the kiri tree.    
 
