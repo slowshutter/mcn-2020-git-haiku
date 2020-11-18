@@ -1,4 +1,4 @@
-Now in sad autumn    
-here at your flowering grave    
-Or backyard love?    
+If there were fragrance    
+oh voices of the wild ducks    
+Waterfall music    
 
