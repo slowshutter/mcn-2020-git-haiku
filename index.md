@@ -1,4 +1,4 @@
-Here, where a thousand    
-these brilliant-hued hibiscus    
-Companion butterfly!    
+The rains of summer join together.    
+is quieted with creepers    
+Stabs the darkness    
 
