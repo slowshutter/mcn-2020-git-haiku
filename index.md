@@ -1,4 +1,4 @@
-An old pond    
-here at your flowering grave    
-Or backyard love?    
+The summer grasses.    
+The birds cry, and the fishes’ eyes are     
+Like our tendrilled life    
 
