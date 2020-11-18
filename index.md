@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-visit the ancestral grave    
-Of dark loneliness    
+Clouds come from time to time -    
+to see the moon, whose solemn pace    
+Or backyard love?    
 
