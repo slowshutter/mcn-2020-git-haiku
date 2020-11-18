@@ -1,4 +1,4 @@
-This is the new line    
-it needs but shiny wings and look    
-This autumn evening.    
+Here, where a thousand    
+who spends his little breakfast    
+Of faded daffodils    
 
