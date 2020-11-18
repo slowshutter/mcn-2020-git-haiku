@@ -1,4 +1,4 @@
-Will we meet again    
-Heron's cry    
-A water-jewel    
+Oh, tranquility!    
+just enough to bend the leaves    
+Ueno? Asakura?    
 
