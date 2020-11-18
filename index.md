@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Heron's cry    
-Basho lines the moon    
+Spring is passing.    
+The fragrant blossoms remain.    
+from the kiri tree.    
 
