@@ -1,4 +1,4 @@
-Temple bells die out.    
-stretching over Sado Island    
-Lilies on the rocks    
+In the cicada's cry    
+loneliness? Just one leaf    
+from looking at the moon.    
 
