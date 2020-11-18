@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-Penetrating the very rock,    
+An old pond    
+Line that won't be deleted    
 Over the orchid    
 
