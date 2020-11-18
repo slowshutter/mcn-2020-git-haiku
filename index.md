@@ -1,4 +1,4 @@
-An old pond    
-Line that won't be deleted    
-Over the orchid    
+Here, where a thousand    
+All that remains    
+Bearded, with bent canes    
 
