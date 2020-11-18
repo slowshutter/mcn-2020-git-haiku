@@ -1,4 +1,4 @@
-In the sea-surf edge    
-here at your flowering grave    
-Or backyard love?    
+The first day of the year:    
+let us arrange these flowers    
+Our hungry donkey    
 
