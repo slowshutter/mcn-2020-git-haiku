@@ -1,4 +1,4 @@
-An old pond    
-who spends his little breakfast    
-Of warriors’ dreams.    
+For a lovely bowl    
+April's air stirs in willow-leaves    
+Lilies on the rocks    
 
