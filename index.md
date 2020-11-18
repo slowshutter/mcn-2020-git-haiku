@@ -1,4 +1,4 @@
-Temple bells die out.    
-Twilight whippoorwill, whistle on, sweet deepener    
-A water-jewel    
+Dewdrop, let me cleanse    
+Penetrating the very rock,    
+Over the orchid    
 
