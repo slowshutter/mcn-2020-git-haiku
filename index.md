@@ -1,4 +1,4 @@
-None is travelling    
-in dusky night    
-How soon it must die.    
+When you say something,    
+Here along this way but I,    
+Contemptuous of frost    
 
