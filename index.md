@@ -1,4 +1,4 @@
-An old pond    
-dead leaves alone foregather    
-from the kiri tree.    
+This snowy morning    
+There's no sign that can foretell    
+Bearded, with bent canes    
 
