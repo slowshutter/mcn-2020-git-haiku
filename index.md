@@ -1,4 +1,4 @@
-White cloud of mist    
-There's no sign that can foretell    
-Or backyard love?    
+Now in sad autumn    
+Is also changed to another    
+The Autumn wind.    
 
