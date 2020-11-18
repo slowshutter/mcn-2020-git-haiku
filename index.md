@@ -1,4 +1,4 @@
-Under cherry-trees    
-thoughts come - and there is loneliness;    
-the autumn dusk is here.    
+Lady butterfly    
+watching us pass, met death    
+Of warriors’ dreams.    
 
