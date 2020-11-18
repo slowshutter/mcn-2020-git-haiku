@@ -1,4 +1,4 @@
-Cold first winter rain    
-and bring to men a chance to rest    
-Or backyard love?    
+Ballet in the air    
+let us to the road again    
+Ueno? Asakura?    
 
