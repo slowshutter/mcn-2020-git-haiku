@@ -1,4 +1,4 @@
-Black cloudbank broken    
-Penetrating the very rock,    
-These dark hands of life    
+Seek on high bare trails    
+therefore our thanks dark clouds    
+It’s the Doll’s Festival.    
 
