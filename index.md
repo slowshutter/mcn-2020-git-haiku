@@ -1,4 +1,4 @@
-The sea darkening    
-poor monkey, you too could use    
-and gazes at the moon.    
+Spring is passing.    
+even the crickets' singing    
+A cicada’s voice.    
 
