@@ -1,4 +1,4 @@
-Poverty's child -    
+An old pond    
 dead leaves alone foregather    
-A water-jewel    
+from the kiri tree.    
 
