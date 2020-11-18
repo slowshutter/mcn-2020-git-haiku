@@ -1,4 +1,4 @@
-None is travelling    
-dead leaves alone foregather    
-Splash!    
+Black cloudbank broken    
+he starts to grind the rice,    
+Crying, whirling, white    
 
