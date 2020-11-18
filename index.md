@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-above white    
-are darkened . . .    
+In the sea-surf edge    
+here at your flowering grave    
+Or backyard love?    
 
