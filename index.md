@@ -1,4 +1,4 @@
-Ballet in the air    
-let us to the road again    
-Ueno? Asakura?    
+A owner of the old thatched hut    
+dead leaves alone foregather    
+Murmuring Mogami    
 
