@@ -1,4 +1,4 @@
-Now in sad autumn    
-Is also changed to another    
-The Autumn wind.    
+None is travelling    
+just enough to bend the leaves    
+Tall grass their monument    
 
