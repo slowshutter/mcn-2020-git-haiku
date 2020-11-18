@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-above white    
-the autumn dusk is here.    
+Now that eyes of hawks    
+The fragrant blossoms remain.    
+Mogami River.    
 
