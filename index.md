@@ -1,4 +1,4 @@
-Swallow in the dusk    
-thoughts come - and there is loneliness;    
-This autumn evening.    
+Cloud of cherry-bloom    
+starving for fat fish or mice    
+A butterfly floats and balances    
 
