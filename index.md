@@ -1,4 +1,4 @@
-An old pond    
-Penetrating the very rock,    
-Mogami River.    
+The sea darkening    
+poor monkey, you too could use    
+and gazes at the moon.    
 
