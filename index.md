@@ -1,4 +1,4 @@
-When you say something,    
-Here along this way but I,    
-Contemptuous of frost    
+Now that eyes of hawks    
+Penetrating the very rock,    
+Marks only midnight yet    
 
