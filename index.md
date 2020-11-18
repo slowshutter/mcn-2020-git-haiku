@@ -1,4 +1,4 @@
-None is travelling    
-these heavy snow-flakes settling    
-from the kiri tree.    
+The first day of the year:    
+The birds cry, and the fishes’ eyes are     
+Marks only midnight yet    
 
