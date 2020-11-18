@@ -1,4 +1,4 @@
-This snowy morning    
-There's no sign that can foretell    
-Bearded, with bent canes    
+Silent the old town    
+The fragrant blossoms remain.    
+Companion butterfly!    
 
