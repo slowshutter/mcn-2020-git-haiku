@@ -1,4 +1,4 @@
-Spring is passing.    
-All that remains    
-Stabs the darkness    
+A owner of the old thatched hut    
+and bring to men a chance to rest    
+Mogami River.    
 
