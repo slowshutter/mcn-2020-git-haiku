@@ -1,4 +1,4 @@
-Here, where a thousand    
-dead leaves alone foregather    
-Come to rest our necks    
+In the sea-surf edge    
+thoughts come - and there is loneliness;    
+Silent clouds of stars    
 
