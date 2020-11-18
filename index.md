@@ -1,4 +1,4 @@
-This is the new line    
-above white    
-A water-jewel    
+None is travelling    
+these heavy snow-flakes settling    
+from the kiri tree.    
 
