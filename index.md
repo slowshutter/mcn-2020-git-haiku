@@ -1,4 +1,4 @@
-None is travelling    
-just enough to bend the leaves    
-Tall grass their monument    
+Now in sad autumn    
+here at your flowering grave    
+Or backyard love?    
 
